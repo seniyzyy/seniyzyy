@@ -3,7 +3,7 @@
 <img src="https://files.catbox.moe/1dc41j.png"/>
 </h5> 
 <h5 align="center">
-<img src="https://files.catbox.moe/qkx0kl.png"/>
+<img src="https://files.catbox.moe/7vkyvf.png"/>
 
 </h5>  
 
