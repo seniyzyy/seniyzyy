@@ -7,7 +7,7 @@
 </h5>  
 
 <p align="center">
- ──  creds: @natsuki-bakery . w2i ── 
+ ──  creds: @natsuki-bakery ── 
 <p align="center">
  ──  I <3 EEPY KIDDOS ──
 </p> 
