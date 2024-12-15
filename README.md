@@ -8,6 +8,8 @@
 
 <p align="center">
  ──  creds: @natsuki-bakery . w2i ── 
+<p align="center">
+ ──  I <3 EEPY KIDDOS ──
 </p> 
 <h5 align="center">
 <img src="https://files.catbox.moe/jnayhv.webp"/> <img src="https://files.catbox.moe/68ltvw.webp"/> <img src="https://files.catbox.moe/9oolb7.webp"/>
