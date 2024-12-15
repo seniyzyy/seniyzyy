@@ -1,4 +1,4 @@
-<img src=""/>
+
 <h5 align="center">
 <img src="https://files.catbox.moe/gfs20u.png"/>
 </h5> 
