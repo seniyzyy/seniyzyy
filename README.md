@@ -10,6 +10,8 @@
  ──  creds: @natsuki-bakery ── 
 <p align="center">
  ──  I <3 EEPY KIDDOS ──
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=seniyzyy&color=6699CC"/>
 </p> 
 <h5 align="center">
 <img src="https://files.catbox.moe/jnayhv.webp"/> <img src="https://files.catbox.moe/68ltvw.webp"/> <img src="https://files.catbox.moe/9oolb7.webp"/>
