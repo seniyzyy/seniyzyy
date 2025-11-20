@@ -16,9 +16,17 @@
 <h5 align="center">
 <img src="https://files.catbox.moe/jnayhv.webp"/> <img src="https://files.catbox.moe/68ltvw.webp"/> <img src="https://files.catbox.moe/9oolb7.webp"/>
 </h5>
+  <p align="center">
+    ──  call me miles or blitz ──
+   <p align="center">
+   17 yr , entp + leo (aug 7th) 
+     <p align="center">
+       he/it prns 
+    <p align="center">
+     ──  audhd bpd sys ect ,, iwc pls ──
 <div align="center">
 
-   <br> [retrospring](https://retrospring.net/@seniyzyy) ㅤ [strwpge](https://blitzy.straw.page) ㅤ [rntry](https://rentry.co/seniyzy) ㅤ [front](https://pluralkit.xyz/f/mljaa) <br><br>
+   <br>   [strwpge](https://togas.straw.page) ㅤ [rntry](https://rentry.co/seniyzy) ㅤ [front](https://pluralkit.xyz/f/mljaa) <br><br>
 <br> [dni](https://rentry.co/dniseniyzy) ㅤ [byi](https://rentry.co/byiseniyzy) <br><br>
 
 </p> 
