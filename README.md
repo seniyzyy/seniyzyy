@@ -9,7 +9,7 @@
 <p align="center">
  ──  creds: @natsuki-bakery ── 
 <p align="center">
- ──  I <3 EEPY KIDDOS ──
+ ──  I <3 MY FRIENDS AND BKDK ──
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=seniyzyy&color=6699CC"/>
 </p> 
