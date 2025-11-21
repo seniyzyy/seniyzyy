@@ -26,7 +26,7 @@
      ──  audhd bpd sys ect ,, iwc pls ──
 <div align="center">
 
-   <br>   [strwpge](https://togas.straw.page) ㅤ [rntry](https://rentry.co/seniyzy) ㅤ [front](https://pluralkit.xyz/f/mljaa) <br><br>
+   <br>   [strwpge](https://bkdkforever.straw.page) ㅤ [rntry](https://rentry.co/seniyzy) ㅤ [front](https://pluralkit.xyz/f/mljaa) <br><br>
 <br> [dni](https://rentry.co/dniseniyzy) ㅤ [byi](https://rentry.co/byiseniyzy) <br><br>
 
 </p> 
